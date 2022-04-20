@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @linhle02
+- 👀 I’m interested in music and watching movies. 
+- 🌱 I’m currently learning BA's Marketing management  
+- 📫 Reach me via LinkedIn: https://www.linkedin.com/in/le-linh-a09354211/ or Facebook: https://www.facebook.com/linhbee05/
